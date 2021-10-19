@@ -1,0 +1,1 @@
+Acá anotaremos notas sobre propuestas para el programa
